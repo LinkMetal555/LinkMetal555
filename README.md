@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **l1nkg4mer555@gmail.com**
 
-- ⚡ Fun fact **I try to be good and skateboard 🛹**
+- ⚡ Fun fact **I try to be good on skateboard 🛹**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
